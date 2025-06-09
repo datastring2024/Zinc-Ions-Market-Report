@@ -70,5 +70,3 @@ Our flexible service model supports organizations of all sizes, with specific ma
 
 ---
 
-Let me know if you want me to further customize tone or format!
-
